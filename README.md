@@ -1,0 +1,1 @@
+# trader-foto-inicio
